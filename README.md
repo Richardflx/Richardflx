@@ -1,4 +1,4 @@
-## Salve! Sou Richard Rosa ✌️
+## Salve! Seja bem-vind@ ao meu perfil ✌️
 
 <div align="center">
   <a href="https://github.com/Richardflx">
